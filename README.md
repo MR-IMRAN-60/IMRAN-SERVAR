@@ -1,4 +1,4 @@
-![Furina]([https://i.imgur.com/Qhydmxw.jpeg])
+![Imran-Ahmed](https://i.imgur.com/Qhydmxw.jpeg)
 
 # Installation
 
